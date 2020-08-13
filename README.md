@@ -2,7 +2,7 @@
 
 # Grace Gospel Church Genesis Youth Fellowship
 
-gcgcgenesis.github.io
+([github Page](https://gcgcgenesis.github.io/))
 
 # Jekyll Now
 
