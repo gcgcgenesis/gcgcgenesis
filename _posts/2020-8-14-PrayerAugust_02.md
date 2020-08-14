@@ -3,29 +3,6 @@ layout: post
 title: First Prayer Post! - Introducing Genesis Prayer News Letter
 ---
 
-## Genesis 
-- Alpha
-- Softball - safety for in person practices; newcomers will keep attending 
-- New leadership
-- Adapt to new responsibilities in serving with the Holy Spirit guiding them
-- 2020 grads (New Cell)
+## Welcome
 
-## Church 
-- Next steps in preparing for reopening
-- 30th anniversary celebration preparation
-- Online classes/meetings for all ministries (sunday school)
-- Online summer camp for younger children
-- English adults’ board game ministry - new believers
-
-## World
-- Beirut explosion: for all those suffering and passed in this tragedy, that the families and city can heal under God’s love and protection 
-- Belarus protests and police brutality, over 6000 arrested
-- BLM protests still going on in many states and places
-- Oppressive concentration camps for Muslims in China
-- COVID 
-  - Medical workers
-  - Following safety guidelines
-  
-## Missions
-- As our missionaries Nick and Josh continue to keep in contact with those they have befriended
-- That these people may find motivation to not isolate themselves spiritually and socially, and keep safe where they are
+Welcome to the Genesis prayer news letter. Come by often to check for updates to see how God is working in our community!
