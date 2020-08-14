@@ -6,9 +6,10 @@ permalink: /prayer/
 
 ## Genesis 
 - Alpha
-- Softball - safety for in person practices; newcomers will keep attending 
+- Softball 
+  - safety for in person practices; newcomers will keep attending 
 - New leadership
-- Adapt to new responsibilities in serving with the Holy Spirit guiding them
+  - Adapt to new responsibilities in serving with the Holy Spirit guiding them
 - 2020 grads (New Cell)
 
 ## Church 
@@ -31,4 +32,4 @@ permalink: /prayer/
 - As our missionaries Nick and Josh continue to keep in contact with those they have befriended
 - That these people may find motivation to not isolate themselves spiritually and socially, and keep safe where they are
 
-Send your prayer requests to [genesis@gcgcny.org](mailto:genesis@gcgcny.org)!
+Send your prayer requests to [genesis@gcgcny.org](mailto:genesis@gcgcny.org)! *personal requests will not be published*
