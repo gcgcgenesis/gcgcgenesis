@@ -7,7 +7,7 @@ permalink: /prayer/
 ## Genesis 
 - New Grade 7s
 - Wisdom/guidance for new leadership team this school year
-- Softball: gospel presentation coming Wednesday (Kian, Naira, those who aren't baptized)
+- Softball: gospel presentation coming Wednesday
 - Attendees' relationships with God will grow after Alpha
 
 
