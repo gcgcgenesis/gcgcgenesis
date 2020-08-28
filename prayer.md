@@ -5,31 +5,44 @@ permalink: /prayer/
 ---
 
 ## Genesis 
-- Alpha
-- Softball 
-  - safety for in person practices; newcomers will keep attending 
-- New leadership
-  - Adapt to new responsibilities in serving with the Holy Spirit guiding them
-- 2020 grads (New Cell)
+- New Grade 7s
+- Wisdom/guidance for new leadership team this school year
+- Softball: gospel presentation coming Wednesday (Kian, Naira, those who aren't baptized)
+- Attendees' relationships with God will grow after Alpha
+
 
 ## Church 
-- Next steps in preparing for reopening
-- 30th anniversary celebration preparation
-- Online classes/meetings for all ministries (sunday school)
-- Online summer camp for younger children
-- English adults’ board game ministry - new believers
+- Wisdom for church reopening 
+- New deacons and Ministry Team
+- Growth and impact on children who attend online summer camp
+- Direction for mandarin youth ministry
+- Praise God there's 6 new believers from Cantonese Alpha! - follow up for those who didn't choose to believe yet
+- Pray for new believers from english adult board game ministry 
+
 
 ## World
-- Beirut explosion: for all those suffering and passed in this tragedy, that the families and city can heal under God’s love and protection 
-- Belarus protests and police brutality, over 6000 arrested
-- BLM protests still going on in many states and places
-- Oppressive concentration camps for Muslims in China
-- COVID 
-  - Medical workers
-  - Following safety guidelines
+- COVID19
+  - Ontario’s new rise in cases
+  - Remote tribe in India’s Andamans with first cases
+  - Navajo Nation getting needed aid to fight Corona and survive
+- Hurricane Laura; for those in Texas and Louisiana as they have to keep safe
+- For Beirut explosion as they clean up and heal from the tragic accident
+
   
 ## Missions
-- As our missionaries Nick and Josh continue to keep in contact with those they have befriended
-- That these people may find motivation to not isolate themselves spiritually and socially, and keep safe where they are
+- Emad Botros (Lebanon)
+- Joe Bridi (CBM, Lebanon)
+  - Helping seminary grads start ministries and aiding Syrian refugees
+- Suraj Komaravalli (CBM, India)
+- V & G (Africans in Montreal)
+- J (North Africa)
+- Kevin & Jessica (Japan)
+- Nicholas Chang (Light Patrol, GTA)
+- Joanna Yee (Rahab Ministry)
+- Tim Phan (Ambassadors for Christ)
+- C & K 
+  - Global leadership as they run business-mission investment fund to reach out through many companies to nonbelievers
+
+
 
 Send your prayer requests to [genesis@gcgcny.org](mailto:genesis@gcgcny.org)! *personal requests will not be published*
