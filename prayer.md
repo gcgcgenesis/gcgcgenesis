@@ -5,29 +5,27 @@ permalink: /prayer/
 ---
 
 ## Genesis 
-- New Grade 7s
-- Wisdom/guidance for new leadership team this school year
-- Softball: gospel presentation coming Wednesday
-- Attendees' relationships with God will grow after Alpha
+- Peace and rest for SHERMEEEEEN with home renovations - good rest!
+- Carol and babyyyy + Max
+- Praise God for his faithfulness in the softball season!
+- Grade 7 cell will grow in community and in God together
+- New school year for everyone
 
+## Church
+- Sunday School
+- KLS
+- New terms
+- Church reopening plans for beginning of November
+- Baptism
+- For those who have gone through their interviews and continue preparing their testimonies
 
-## Church 
-- Wisdom for church reopening 
-- New deacons and Ministry Team
-- Growth and impact on children who attend online summer camp
-- Direction for mandarin youth ministry
-- Praise God there's 6 new believers from Cantonese Alpha! - follow up for those who didn't choose to believe yet
-- Pray for new believers from english adult board game ministry 
-
-
-## World
+## World 
+- Wildfires along the American West Coast and in Brazil
+- The environment and safety of those living there
 - COVID19
-  - Ontario’s new rise in cases
-  - Remote tribe in India’s Andamans with first cases
-  - Navajo Nation getting needed aid to fight Corona and survive
-- Hurricane Laura; for those in Texas and Louisiana as they have to keep safe
-- For Beirut explosion as they clean up and heal from the tragic accident
-
+- Congregations are more frequent; pray for wisdom and safety for people of all ages
+- School environments
+- Those going in person may remain safe and healthy as they adhere to protocols			
   
 ## Missions
 - Emad Botros (Lebanon)
